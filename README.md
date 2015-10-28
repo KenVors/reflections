@@ -1,1 +1,1 @@
-Reflections sayfasindaki degisiklikler
+Kim bu sacmaliklari yapti, bilmiyorum..
